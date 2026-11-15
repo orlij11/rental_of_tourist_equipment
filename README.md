@@ -1,0 +1,1 @@
+# rental_of_tourist_equipment
